@@ -2,5 +2,5 @@
 ## Final Project
 
 **Members** <br>
-Doria, Denzel L.
+Doria, Denzel L. <br>
 Malimban, John Geuell S.M.
