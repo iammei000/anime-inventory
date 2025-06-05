@@ -1,6 +1,6 @@
 # anime-inventory
 ## Final Project
 
-**Members**
+**Members** <br>
 Doria, Denzel L.
 Malimban, John Geuell S.M.
