@@ -3,4 +3,4 @@
 
 **Members** <br>
 Doria, Denzel L. <br>
-Malimban, John Geuell S.M.
+Perdonia, Denise Ann M.
